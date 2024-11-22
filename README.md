@@ -2,7 +2,7 @@
 - 👀 I’m interested in exploring
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to chenge career
-- 📫 How to reach me www.linkedin.com/in/moksh-goel-b175b8226
+- 📫 How to reach me www.linkedin.com/in/moksh-goel-b175226
   
 
 <!---
